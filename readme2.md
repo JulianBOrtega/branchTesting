@@ -1,1 +1,1 @@
-# ♡　Luca x Diego　♡ 
+# ♡　Luca x Diego　♡ Ambos gays
